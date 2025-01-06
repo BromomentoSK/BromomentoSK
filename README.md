@@ -1,6 +1,6 @@
 ## Hi, my name is Roman and welcome to my github page.
 
-► ⚡️ I’m currently working on www.wilmont.sk
+► ⚡️ I’m not currently working on any project.
 
 ► 📚 I’m 16 and I’m studying electrical engineering.
 
